@@ -1,2 +1,0 @@
-# Namkeensnasks
-#foods and snacks
